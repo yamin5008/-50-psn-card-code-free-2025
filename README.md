@@ -1,1 +1,1 @@
-# -50-psn-card-code-free-2025
+# $50-psn-card-code-free-2025
